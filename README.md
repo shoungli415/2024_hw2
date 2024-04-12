@@ -1,1 +1,1 @@
-# 2024_hw2
+# eunsong415@gmail.com
